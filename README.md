@@ -46,7 +46,7 @@ I believe in continuous learning and staying updated with the latest technologie
 
 Feel free to reach out if you're looking for a developer or just want to connect!
 
-- 🔗 LinkedIn: www.linkedin.com/in/ahmed-khaled-905a1725b
+- 🔗 LinkedIn: linkedin.com/in/ahmed-khaled-905a1725b
 - 📧 Email: ahmedkhaled.work11@gmail.com
 
 
